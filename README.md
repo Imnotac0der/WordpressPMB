@@ -1,3 +1,6 @@
+![image](https://github.com/user-attachments/assets/3cd050d5-d834-45fe-a8cc-47ab148ece0e)
+![Qui sommes-nous](https://github.com/user-attachments/assets/6521e79e-d26b-4055-803c-9b0052842799)
+
 Tableau de compétences :
 
 
